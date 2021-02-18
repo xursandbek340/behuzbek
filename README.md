@@ -1,0 +1,2 @@
+# behuzbek
+bos gazni
